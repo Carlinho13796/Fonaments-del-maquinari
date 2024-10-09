@@ -1,0 +1,1 @@
+# fonaments maquinari
